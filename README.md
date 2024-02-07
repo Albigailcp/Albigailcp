@@ -1,5 +1,5 @@
 - Hi, I’m @Albigailcp
-- 💞️ I’m looking to collaborate on any game proyect
+- I’m looking to collaborate on any game proyect
 - 📫 You can find me on instagram with the username of @albigailcp, mi gmail is albacabrerapilco@gmail.com
 - ⚡ Fun fact: I started coding this year :D
 
